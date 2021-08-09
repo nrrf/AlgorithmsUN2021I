@@ -1,3 +1,7 @@
 # Course Certificate: Algorithmic Toolbox
 
-##  [[📝Certificate](https://coursera.org/share/7b4edfcfa7dd6c5e86208e4ccbef872f)]
+##  [[📝Certificate](https://www.coursera.org/account/accomplishments/certificate/8EKMCKKM5XW5)] 
+
+# Linkedin Profile with Course Certificate 
+
+## [[📝My Linkedin Profile](https://www.linkedin.com/in/nicolas-raul-rojas-feria-325272154/)]
